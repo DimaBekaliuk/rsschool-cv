@@ -1,13 +1,13 @@
 CURRICULUM VITAE
-Dane osobowe
+Dane osobowe
 Imię i nazwisko: 	Bekaliuk Dzmitry
 Data urodzenia:	10/01/1979	
 Adres:	
-Telefon:		+375291500626
-E-mail:	stfdima@mail.ru
+Telefon:+375291500626 viber telegram
+E-mail:	stfdima@gmail.com
 	
 
-Wykształcenie
+Wykształcenie
 01/09/96 – 30/05/01	Uniwersytet Brzeski, Białoruś, Wydział Ekonomiczny,   najwyższe  wyróżnienie, czerwony dyplom 
 01/09/86 – 30/05/96	Gimnazjum Brześć, Białoruś, Najwyższe odznaczenie, Złoty medal
 Doświadczenie zawodowe
@@ -46,7 +46,7 @@ E-mail:	stfdima@mail.ru
 •	Kontraktacja 
 
 
-Dodatkowe informacje
+Dodatkowe informacje
 Języki obce
 •	język rosyjski: 	biegła
 •	język polski	bardzo dobra
