@@ -1,1 +1,1 @@
-https://github.com/DimaBekaliuk/rsschool-cv.git
+https://github.com/DimaBekaliuk/rsschool-cv/blob/gh-pages/cv.md
